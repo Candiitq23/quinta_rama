@@ -6,7 +6,7 @@
 
 Y lo usaré solo para decirte lo mucho que lo siento
 
-Que si me ven con otra en una disco, solo es perdiendo el tiempo
+Que si me ven con otra en un boliche , solo es perder el tiemp
 
 Baby, ¿pa’ qué te miento?
 
@@ -20,7 +20,7 @@ Y los vídeos que tengo de ti
 
 Prendo para irme a dormir
 
-Porque duermo mejor si sueño que estás aquí
+Porque duermo mejor si sueño que est
 
 Si supieras que te escribí
 
